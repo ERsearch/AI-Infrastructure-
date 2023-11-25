@@ -1,2 +1,16 @@
 # AI-Infrastructure-
 AI Community Solutions
+Establish a non marketing based network system dedicated to community infrastructure training and management. In recent 10 year assessment of why 2030 Global Sustainable Agenda Goals are lagging behind, the UN identified  
+Multinational Enterprises (MEs) -- including financial institutions and government military contractors -- as the key parties not contributing their rightful share to support and fund sustainable global infrastructure building goals. Exponential increase in concentration of wealth and power 
+by individuals associated with large corporate conglomerate MEs spurs forward an ever increasing wealth gap
+that continues to negate legislative, judicial and executive powers across the globe. As these companies wield the powers of nation-states, these companies logically carry the accompanying responsibilities of nation-states to protect and provide societal services for the citizens they impact. Perhaps use a Venn diagram to denote global divisions district or county level community partnerships with MEs. Provide nation-state equitable funding resources as well as hands on support with R&D and in house training for effective deployment of an AI directed and networked technology infrastructure. Community groups and individuals collaborate with corporate, government, military, civil service, and  public education to set up and operate the network. Packaging and distributing ITC content for education, training and infrastructure building becomes the marketable item -- knowledgeable and experienced citizens are needed to manage the infrastructure demands of a quickly advancing future. Aging populations and changing workforce dynamics with technology need addressed. Having all our media messages driven by consumerism skews citizen access to information and presents an untenable impact on society values and goals. There is more to life and being part of a community and a society member than buying more and more things. As citizens we are responsible for understanding and taking charge of the technology that runs our societal infrastructure. Electricity, plumbing, water, sewage, waste, transportation, health, housing, foid, childcare, power, education, communications technology and planetary health 
+deserve our equal consideration. All citizens have the responsibility to learn about and contribute to managing the infrastructure technology our society depends on. It is not safe or wise to have a global citizenry largely ignorant of the technology that is used on daily basis. 
+
+
+to set up, maintain and utilize fully distributed network system from satellite signals to ground relays;
+
+AI supported user adaptive input and output interface with self improving system to (1) generate, package and distribute   multimedia educational
+content; (2) guide non-expert users with using and adapting software solutions (such as enterprise management systems) to meet given situational needs; (3) guide non-expert users with hardware set up and connections to maximize ancillary media production devices; (4) guide non-expert users with installation and maintenance of alternative energy and power supplies; (5)  (6) community groups and individuals collaborate
+
+
+mtechnologies AI supported,  user adaptive and self improving  for pa
